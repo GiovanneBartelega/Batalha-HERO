@@ -1,2 +1,0 @@
-# Batalha-HERO
-Trabalho Angelo
